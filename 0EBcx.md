@@ -1,0 +1,1 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年06月14日 16时19分50秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</h2><br><h3>新股破发率下降 本月上市12只新股仅1只破发。</h3><br><p>龙头一声吼 股指上下抖 券商龙头异动带动大盘波动。<br><br> | 来源：szh-fa-solutions.com<br></h2><br><h3>原拆原建政策落地 老房改造需求爆发引爆地产股。</h3><br><p>格力电器公布回购方案 拟斥资50亿至100亿元回购股份。<br><br> | 来源：https://www.sunhungkei.com<br>
